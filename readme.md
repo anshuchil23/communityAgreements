@@ -69,3 +69,7 @@ Truly engaging can be challenging and vulnerable.
 ## **Have Fun**
 
 Make sure to enjoy what you make, what you learn and what you share.
+
+## **Be understanding of Time zones and Schedules**
+
+Understand the different time zones your peers are in.
